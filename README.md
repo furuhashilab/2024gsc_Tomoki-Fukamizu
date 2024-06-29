@@ -11,3 +11,33 @@
 指導教員 古橋大地 教授
 
 ©︎Furuhashi Laboratory/Shiori Uehara, CC BY 4.0
+
+
+# 
+## 
+
+
+## Abstract
+
+
+## Introduction:
+
+## Methods
+
+### 
+
+利用したデータ：
+
+
+
+## Results:
+
+
+
+## Discussion:
+
+
+## Conclusion:
+
+
+スライド
