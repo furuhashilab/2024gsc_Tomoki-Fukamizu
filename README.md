@@ -10,7 +10,7 @@
 
 指導教員 古橋大地 教授
 
-©︎Furuhashi Laboratory/Shiori Uehara, CC BY 4.0
+©︎Furuhashi Laboratory/Tomoki Fukamizu, CC BY 4.0
 
 ## Abstract
 就職活動を行うにあたって、選考を受ける企業の情報や選考スケジュール、面接の内容などをまとめて記録しておくことは、スムーズな対策を可能にする。
