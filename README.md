@@ -19,6 +19,8 @@
 
 # [アンケート](https://forms.gle/3uTsNfJZ1Ut5MYcA9)
 
+# [スライド](https://www.canva.com/design/DAGW6qXWNPE/zI6jXAu-BB1b51peOuc17Q/edit?utm_content=DAGW6qXWNPE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
 
 
 
@@ -79,4 +81,4 @@
 本研究を進めるにあたり古橋先生をはじめ多くの方々より多大な助言を賜りました。厚く感謝を申し上げます。
 
 
-スライド
+
