@@ -19,7 +19,7 @@
 
 # [アンケート](https://forms.gle/3uTsNfJZ1Ut5MYcA9)
 
-# [スライド](https://www.canva.com/design/DAGW6BZpPZ0/c1vzfjj1H8iAhEGYa14Mmg/edit?ui=eyJEIjp7IlQiOnsiQSI6IlBCSEwwekZUZjlTcWNwTFYifX19&utm_content=DAGW6BZpPZ0&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+# [スライド](https://www.canva.com/design/DAGW6BZpPZ0/c1vzfjj1H8iAhEGYa14Mmg/edit?ui=eyJEIjp7IlQiOnsiQSI6IlBCSEwwekZUZjlTcWNwTFYifX19&utm_content=DAGW6BZpPZ0&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAGdvFY-nWE/NdF8skPAmN5wiYsfyGA2Tg/edit?utm_content=DAGdvFY-nWE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 
 
