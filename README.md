@@ -21,7 +21,7 @@
 
 # [スライド](https://www.canva.com/design/DAGdvFY-nWE/NdF8skPAmN5wiYsfyGA2Tg/edit?utm_content=DAGdvFY-nWE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
-
+# [参考文献](https://docs.google.com/spreadsheets/d/1WLbPgqF2ke-Y6j_AhZA1xVxvyiK5i5p-fEMbdhS9e7s/edit?usp=sharing)
 
 
 
